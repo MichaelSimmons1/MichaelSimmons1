@@ -1,0 +1,5 @@
+- Hey, Im Michael and I am 32 years old
+- At the moment Im living in LA
+- My passion is swimming, different styles
+- Im a copywriter, 8 years of experience.
+- How to reach me <a href="https://krispitech.com/technology-review-article-number-29/">How to reach me</a>
